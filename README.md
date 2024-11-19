@@ -2,7 +2,7 @@
 
 #### DevSuperior - Nelio Alves
 
-[![Image](https://img.youtube.com/vi/os6hdZbCnpM/mqdefault.jpg "Vídeo no Youtube")](https://youtu.be/os6hdZbCnpM)
+https://www.youtube.com/watch?v=jh_T5_o3qKE
 
 Siga-nos:
 
